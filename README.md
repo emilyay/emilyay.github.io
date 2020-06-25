@@ -1,2 +1,2 @@
-# blog
-Repo for blog posts
+# blogs on blogs on blogs
+Here be blogs
