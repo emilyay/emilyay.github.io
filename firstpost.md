@@ -1,4 +1,4 @@
-# The First Post - 6/24/20
+# The Story of June 24, 2020
 ## Yesterday I had the best work workshop I have ever attended. 
 The kind of workshop that's actually engaging, useful, and inspiring. It was about how to be a better storyteller and it made me want to start this blog to work on my own storytelling abilities. From the speaking perspective, I think my storytelling skills are not too bad. I think I can mostly tell a good story when I'm talking, but it really made me interested in developing a better writing voice, an area I think needs more work.
 
