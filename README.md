@@ -1,4 +1,4 @@
 # blogs on blogs on blogs
 Here be blogs
 
-[First post](firstpost.md)
+[The Story of June 24, 2020](firstpost.md)
