@@ -1,4 +1,4 @@
-# The Story of My BLM Reflections
+# BLM Reflections
 ## Let’s talk about what this post is NOT.
 This post is not my attempt to educate you on anything related to BLM or anti-racism or anything like that. I am incredibly far from an authoritative subject on any of these topics, and there’s far better content out there. It would be a very white person move of me to suddenly pretend to know everything, now that I am learning some things, but I will try my very best to refrain from doing that.
 ## Let’s talk about what this post is.
