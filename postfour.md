@@ -15,11 +15,12 @@ There are lots of reasons why "fun" activities can feel like work sometimes. For
 Happy adventuring!  
 
 ## Update
-In recognition of the privilege I have to do all of these wonderful outdoor activities, I tracked everything I did in August and tied it to donations to organizations that are working to provide opportunities for disadvantaged communities and advance racial justice in these sports. Here's the full rundown:  
+In recognition of the privilege I have to do all of these wonderful outdoor activities, I tracked everything I did in August and tied it to donations to organizations that are working to provide opportunities for disadvantaged communities and advance racial justice in these sports. Here's the full rundown:
 + 69.6 miles of mountain biking --> $69.60 to Black Outside, Inc.  
 + 35.65 miles of hiking & running plus 1 outdoor yoga workout --> $40.65 to Soul Trak Outdoors  
 + 19 routes climbed --> $95 to Climbing for Change  
 + 151 holes of disc golf --> $75.50 to Outdoor Afro  
 + 10,912 yards swimming outside --> $109.12 to Trident Swim Foundation  
+
 It was an awesome month.
 
