@@ -12,4 +12,14 @@ I want to clarify that this relationship is not really the same as just a friend
 ### Step 3: Focus early and often on what you enjoy about your new activity
 There are lots of reasons why "fun" activities can feel like work sometimes. For example, I think this (almost) every time I have to climb while biking. My personal strategy is to focus on why I started biking in the first place: to be outside more. There is of course the "exercise is good for you strategy" but that doesn’t get me through tough climbs. Stopping to take in my surroundings and take a photo (and maybe also catch my breath) is what gets me through tough climbs. In fact, I try to document every ride with a photo. This doesn’t always happen, but having that as a goal definitely encourages to me to pay renewed attention to the scenery, and to remember to pause and enjoy being outside. What I’m really telling you is that this just means that I spend time looking for new and interesting wildflowers. I love wildflowers. And if you love wildflowers too and that’s why you started biking as well, then always pay attention to the wildflowers. Stay connected to what you really enjoy about your activity, and I promise the "work" stages will pass quickly. 
 
-Happy adventuring!
+Happy adventuring!  
+
+## Update
+In recognition of the privilege I have to do all of these wonderful outdoor activities, I tracked everything I did in August and tied it to donations to organizations that are working to provide opportunities for disadvantaged communities and advance racial justice in these sports. Here's the full rundown:  
++ 69.6 miles of mountain biking --> $69.60 to Black Outside, Inc.  
++ 35.65 miles of hiking & running plus 1 outdoor yoga workout --> $40.65 to Soul Trak Outdoors  
++ 19 routes climbed --> $95 to Climbing for Change  
++ 151 holes of disc golf --> $75.50 to Outdoor Afro  
++ 10,912 yards swimming outside --> $109.12 to Trident Swim Foundation  
+It was an awesome month.
+
